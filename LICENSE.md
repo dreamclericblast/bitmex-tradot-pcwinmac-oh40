@@ -1,4 +1,4 @@
-# 
+# Ultimate bitmex trading bot presets for Mac OS | Elite bitmex trading bot presets for PC Windows. Featuring dex liquidity pools and mean reversion strategy — optimized for maximum performance.
 
 
 
